@@ -3,6 +3,9 @@
 ![ImgName](https://dynamic-media-cdn.tripadvisor.com/media/photo-o/19/f5/f7/02/prehradni-nadrz-harcov.jpg?w=1200&h=1200&s=1)
 > A historic dam in Liberec, Czech Republic
 
+![Imgname](https://thumbs.dreamstime.com/b/liberec-dam-jested-26483495.jpg)
+> Take another look.
+
 ## About
 Harcov Dam is located on Harcovský Brook in the city of Liberec. It was built between 1902 and 1904 and is associated with the dam-design principles of Otto Intze, an engineer known for his work on water-storage dams in Central Europe. The structure is a masonry gravity dam: its weight helps resist the pressure of the water stored behind it.
 
